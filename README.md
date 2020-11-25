@@ -1,0 +1,1 @@
+# Verics_componentes
